@@ -53,14 +53,27 @@ Hādhihi ed-dunya tarfa‘ w taḍa‘ qawm
 --
 
 🔁 Refrain
-—
+
+--
+
 📌 Couplet 3
+
 Idhā ehtammēt men ḥāl ‘ala l-khāliq kon tākal
+
 ➡️ Fais confiance à Dieu dans l’épreuve
+
 Yenjīk men koll ahwāl w ykoun lak er-rezq sāhel
+
 ➡️ Il te sauvera et facilitera ta vie
+
 Lā ta‘mel ḥadd fī bāl tekoun fī yeddo ḥāṣel
+
 ➡️ Ne dépends de personne
-—
+
+--
+
 🔁 Refrain (fin)
+
+--
+
 ✨ Iṣber… ṣber shwayya… ✨
